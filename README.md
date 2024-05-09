@@ -2,7 +2,7 @@
 
 BOAS VINDAS A TODOS!!!
 
-Me chano JOAO VITOR PEDRO SILVA
+Ola, me chano JOAO VITOR PEDRO SILVA
 
 -Estou estudando no Alura
 
