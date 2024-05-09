@@ -9,3 +9,8 @@ Me chano JOAO VITOR PEDRO SILVA
 -Estou me desenvolvendo na linguagem JavaScript
 
 -Utilizo esse espaçp para minha organizaçao e compartilhamento dos meus projetos 
+
+Você pode entrar em contato comigo 📫
+alurastartestudante@email.com
+
+@alurastartestudante
